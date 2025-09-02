@@ -1,16 +1,8 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- "Good Chinese People" (CCWCO), 2023.
 
-- National Scholarship for Graduate Student, 2024.
+- Olympic Trophy (IOC), 2022.
 
-- First-Prize Scholarship (CUMT), 2024.
+- Champions of the Earth (UN), 2019.
 
-- First-Prize Scholarship (CUMT), 2023.
-
-- Freshman Scholarship (CUMT), 2022.
-
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
-
-- First-Prize Enterprise Scholarship (CUMT), 2020.
-
-- First-Prize Scholarship (CUMT), 2019.
+- Special Award (TCPY), 2008.
